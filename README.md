@@ -1,4 +1,16 @@
 officialwebsite
 ===============
 
-This is the first place that I am experimenting with Git Repository using useful files that I would inherently enjoy being saved.
+My name is Nicholas Lawson. I am essentially the reincarnation of Steve Jobs. I absolutely adore computers and shortly after his death while experiencing an epic dose of THC inhalation it was bequeathed to me that one day I would work for Apple Computer and rise through the ranks of their coding division to help reinstill the brilliance of Steve Jobs to the Apple Work Ethic. I completely understand Steve Jobs and bemoan the idea that at one point he was considered a dick. He was a designer au naturale and as I learned in design school that most people never took the time to experience. You are to be professionally hateful of anything less than the obvious best that a company of people is expected to achieve. I have nothing but time on my hands to develop my sensibilities as a communicator that you can work and live with here on planet earth.
+
+I love to write and I love to think. I am a logical snap dragon waiting to dovetail my last thought with my newest thought. This is going to be a place where I am going to make my home and learn to speak the newest language that has been created on earth. We communicate through computers and with my experience with visualizing my progress as a human being I am going to eventually have office space in that new Apple Beacon of Hope that is the Love Circuit of Earth that is the new circular office building that has yet to be built in honor of Steve Jobs.
+
+Life abounds in all people and I am no different. I am wholly and uniquely different than all seven billion other adherents to this planet and my experience in my 32 years has been to be abashingly powerful in speech. Always speak with the highest authority that our lungs will allow you to speak with to all that you speak with.
+
+This is where I build by fortune and my legacy as a member of planet earth. I have great plans and think ad hoc about the after life and believe that I have always been. Will always be. And from my position as a member of this planet I wish to take advantage of this novel communication device and my glut of freetime spent thinking to disrupt american culture and stop the fragmenting that is occurring in a post 9/11 world. A very important cadre of social chemistry was destroyed in 9/11 and our most brilliant thought provocateurs and planners were killed that day. 
+
+I am a post 9/11 child and am looking to reawaken that spirit that we had just moments before the worst tragedy in american history occurred. We cannot become like Japan and lost our spirit. We must reawaken the human interest in exploring this portal into the human imagination that is the computer. I am a scholar with ten years experience in university training and now I am going to take my most cherished position as a member of my city of Cincinnati and become famous for being outlandishly intelligent and capable of learning the most difficult of problems becasue I have led a truly unique life and from this uniqueness will come unique offerings to the computer science community.
+
+I look forward to working with all of you and hope that one day I will be remembered for having been useful to humanity in some form or fashion. Please read my writing at http://www.nicholaslawson.com and watch as I go from fledgling auteur of the computer science community to in a short decades time, one of its midwest regional leaders.
+
+Namaste.
